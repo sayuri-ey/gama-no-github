@@ -1,0 +1,1 @@
+Estou gostando muito do curso da gama academy. Aprendendo muito sobre programação e também desenvolvimento pessoal.
